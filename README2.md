@@ -27,8 +27,8 @@ Atualmente, atuo como **Estagiário no Setor de Operações na Gedisa**, onde ap
 
 ## 📫 Vamos nos conectar?
 
-- **LinkedIn:** [Seu LinkedIn aqui](https://www.linkedin.com/in/seu-usuario)
-- **E-mail:** [seu-email@exemplo.com](mailto:seu-email@exemplo.com)
+- **LinkedIn:** www.linkedin.com/in/davi-depaula-ferreira
+- **E-mail:** davidepaulaferreira16@gmail.com
 
 ---
 *Aberto a conexões, aprendizados e novas oportunidades de desenvolvimento profissional!*
